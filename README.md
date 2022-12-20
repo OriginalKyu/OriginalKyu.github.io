@@ -1,3 +1,0 @@
-# originalkyu.github.io
-
-test
